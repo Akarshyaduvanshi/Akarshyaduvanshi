@@ -53,7 +53,7 @@
 ## 🤝 Let's Connect
 - 💼 Open to opportunities and collaborations
 - 📫 Reach me at: **akarshy70@gmail.com**
-- 🔗 LinkedIn: **https://www.linkedin.com/in/akarsh-yadav-a64880336**
+- 🔗 LinkedIn: **www.linkedin.com/in/akarshy**
 
 ---
 
